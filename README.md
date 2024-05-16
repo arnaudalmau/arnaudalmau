@@ -1,0 +1,7 @@
+- Hey, @arnaudalmau here 👋 
+- Translator, geek, enthusiast.
+- Teaching Computer Science to the new generations since 2021.
+- Passionate of everything, master of nothing.
+- Here you'll find keyboards and raspberries.
+- Know me better via [my website](https://arnaudalmau.com/).
+- Reach me at [t.me/arnaudalmau](https://t.me/arnaudalmau).
